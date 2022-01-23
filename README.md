@@ -16,11 +16,18 @@
 
 
 Alumni association
+
 ![56109](https://user-images.githubusercontent.com/98265780/150689295-1c46661c-f241-4617-a896-3d0161189b59.jpg)
 
 I joined the music club in high school.
 
 ![269680974_4791974344173623_5185320820083765086_n](https://user-images.githubusercontent.com/98265780/150689690-e50d7aa3-8ea9-45af-9cbc-19cb7775f417.jpg)
+
+Traveling in Australia
+
+![265572848_922769435098180_1770772290340307242_n](https://user-images.githubusercontent.com/98265780/150690408-f11bfcbc-42a4-413c-b5cb-c12cf905e6fb.jpg)
+
+
 
 
 
