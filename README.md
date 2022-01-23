@@ -1,4 +1,9 @@
-### Hi there 👋
+### Hi, I'm Tony Hsu 👋
+#
+I'm currently majoring in [Electrical Engerneering](https://www.dece.nctu.edu.tw/). 🖥
+
+
+
 
 <!--
 **tonyyjhsu/tonyyjhsu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
