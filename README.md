@@ -3,6 +3,8 @@
 ### I'm currently majoring in [Electrical Engerneering](https://www.dece.nctu.edu.tw/). 🖥
 ### I attend alumni association of Ching Cheng High School.
 #
+### Video we made in high school [Hamilton](https://www.youtube.com/watch?v=5DUtA0y49ds)
+#
 
 ### My hobbies:
 - Photographing 📷
@@ -13,6 +15,7 @@
 - 2019 young diplomat
 - Going study tour in Australia ✈️
 - Holding 2019 CCMUN
+
 
 
 Alumni association
