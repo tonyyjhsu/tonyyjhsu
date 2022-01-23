@@ -3,7 +3,7 @@
 ### I'm currently majoring in [Electrical Engerneering](https://www.dece.nctu.edu.tw/). 🖥
 ### I attend alumni association of Ching Cheng High School.
 #
-### Video we made in high school [Hamilton](https://www.youtube.com/watch?v=5DUtA0y49ds)
+### [Hamilton](https://www.youtube.com/watch?v=5DUtA0y49ds), video we made in high school 
 #
 
 ### My hobbies:
