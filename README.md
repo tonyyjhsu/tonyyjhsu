@@ -1,6 +1,7 @@
 ## Hi, I'm Tony Hsu. 👋
 
 ### I'm currently majoring in [Electrical Engerneering](https://www.dece.nctu.edu.tw/). 🖥
+### I join alumni association of Ching Cheng High School.
 #
 
 ### My hobbies:
@@ -11,6 +12,10 @@
 ### Experiences:
 - 2019 young diplomat
 - Joining study tour in Australia ✈️
+
+![56109](https://user-images.githubusercontent.com/98265780/150689295-1c46661c-f241-4617-a896-3d0161189b59.jpg)
+
+
 
 
 <!--
