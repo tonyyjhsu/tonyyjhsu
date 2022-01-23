@@ -1,8 +1,16 @@
-### Hi, I'm Tony Hsu 👋
+## Hi, I'm Tony Hsu. 👋
+
+### I'm currently majoring in [Electrical Engerneering](https://www.dece.nctu.edu.tw/). 🖥
 #
-I'm currently majoring in [Electrical Engerneering](https://www.dece.nctu.edu.tw/). 🖥
 
+### My hobbies:
+- Photographing 📷
+- Playing the piano 🎹
+- Playing basketball 🏀 and swimming 🏊
 
+### Experiences:
+- 2019 young diplomat
+- Joining study tour in Australia ✈️
 
 
 <!--
